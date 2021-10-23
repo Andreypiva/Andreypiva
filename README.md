@@ -1,4 +1,4 @@
-### Opa, eu sou o Andrey Piva
+### Olá, eu sou o Andrey Piva
 
 - 📫 Contate-me no email: andreypivaraulino098@gmail.com
 
